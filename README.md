@@ -1,0 +1,1 @@
+# adaptafit-privacy
